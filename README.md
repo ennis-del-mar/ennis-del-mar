@@ -1,4 +1,7 @@
 <img src="https://file.garden/Zvc9-_BkGl48gASt/Picsart_25-04-06_19-38-23-851.webp">
+<p align="center">
+  <img src="https://64.media.tumblr.com/1bcb4b0697d6db75ba9cee7490298ad9/d416d34ccc1cc73d-b4/s250x400/4ed19b01f4df12c6d28bb00264db38f4362cef31.pnj">
+</p>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31blrcsa5a2jfah66gxcy2gdm6he&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31blrcsa5a2jfah66gxcy2gdm6he&redirect=true) <img src="https://file.garden/Zvc9-_BkGl48gASt/8ef0592268e15e3f1dc99dfb8b349e5a-removebg-preview.png"><br>
 
@@ -20,7 +23,9 @@ sorry if stamps are repeated i'm kidna stupi d.<br>
 
 </p>
 </details>
-
+<p align="center">
+  <img src="https://64.media.tumblr.com/1bcb4b0697d6db75ba9cee7490298ad9/d416d34ccc1cc73d-b4/s250x400/4ed19b01f4df12c6d28bb00264db38f4362cef31.pnj">
+</p>
 <img src="https://file.garden/Zvc9-_BkGl48gASt/Picsart_25-04-06_19-38-57-400.webp">
 
 
