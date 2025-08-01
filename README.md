@@ -1,8 +1,10 @@
-<img src="https://file.garden/Zvc9-_BkGl48gASt/Picsart_25-04-06_19-38-23-851.webp">
+<div align="center">
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31blrcsa5a2jfah66gxcy2gdm6he&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31blrcsa5a2jfah66gxcy2gdm6he&redirect=true) <img src="https://file.garden/Zvc9-_BkGl48gASt/8ef0592268e15e3f1dc99dfb8b349e5a-removebg-preview.png"><br>
+![](https://komarev.com/ghpvc/?username=ennis-del-mar&color=f2ddb6&style=plastic&label=✧&base=600)<br>
+<br>
+<img src="https://file.garden/aEiyzAAiJQqbXoUF/brokeback">
 
-<details><summary style="font-size: 13px;" class="mb8"><u>𝓢𝓽𝓪𝓶𝓹𝓼</u> </summary>
+<details><summary style="font-size: 13px;" class="mb8"><u>stamps</u> </summary>
 
 <p>
 sorry if stamps are repeated i'm kidna stupi d.<br>
@@ -11,7 +13,7 @@ sorry if stamps are repeated i'm kidna stupi d.<br>
 <img src="https://file.garden/Zvc9-_BkGl48gASt/nepali_language_level_intermediate_by_theflagandanthemguy-d9f0qx5.png"><img src="https://file.garden/Zvc9-_BkGl48gASt/d9f0qt5-0b9f4b52-4686-4c09-acd9-ecf5a6cd6b24.png"><img src="https://file.garden/Zvc9-_BkGl48gASt/british_english_language_level_native_by_animexcaso-d81jajs.png">
 </details>
 
-<details><summary style="font-size: 13px;" class="mb8"><u>𝓑𝓵𝓲𝓷𝓴𝓲𝓮𝓼</u> </summary>
+<details><summary style="font-size: 13px;" class="mb8"><u>blinkies</u> </summary>
 
 <p>
 
@@ -19,7 +21,5 @@ sorry if stamps are repeated i'm kidna stupi d.<br>
 
 </p>
 </details>
-<img src="https://file.garden/Zvc9-_BkGl48gASt/Picsart_25-04-06_19-38-57-400.webp">
-
 
 
