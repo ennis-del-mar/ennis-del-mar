@@ -23,5 +23,9 @@ sorry if stamps are repeated i'm kidna stupi d.<br>
 
 </p>
 </details>
+<br>
+<img src="https://file.garden/aEiyzAAiJQqbXoUF/the%20boys">
+
+
 
 
