@@ -25,7 +25,10 @@ sorry if stamps are repeated i'm kidna stupi d.<br>
 </details>
 <br>
 <img src="https://file.garden/aEiyzAAiJQqbXoUF/Screenshot%202025-08-22%2021.04.58.png" alt="the boys" Text" width="300" height="200"><br>
-gang ♡
+gang ♡<br>
+<br>
+<img src="https://file.garden/aEiyzAAiJQqbXoUF/lallaa.png" alt="the boys" Text" width="300" height="200"><br>
+hi yumi !!! ♡
 
 
 
