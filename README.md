@@ -24,6 +24,9 @@ sorry if stamps are repeated i'm kidna stupi d.<br>
 </p>
 </details>
 <br>
+<img src="https://file.garden/aEiyzAAiJQqbXoUF/Screenshot%202025-09-09%2021.47.27.png" alt="poo" Text" width="300" height="300"><br>
+i ain't never seen two pretty best friends<br>
+<br>
 <img src="https://file.garden/aEiyzAAiJQqbXoUF/Screenshot%202025-08-24%2005.34.55.png" alt="poo" Text" width="300" height="300"><br>
 smelly dave ♡<br>
 <br>
