@@ -2,7 +2,7 @@
 
 ![](https://komarev.com/ghpvc/?username=ennis-del-mar&color=f2ddb6&style=plastic&label=✧&base=600)<br>
 <br>
-<img src="https://file.garden/aEiyzAAiJQqbXoUF/brokeback"><br>
+<img src="https://i.pinimg.com/originals/a8/59/27/a8592749aa7f19306deb78f3c56a139a.gif"><br>
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31blrcsa5a2jfah66gxcy2gdm6he&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=b09987&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 <details><summary style="font-size: 13px;" class="mb8"><u>stamps</u> </summary>
